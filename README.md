@@ -1,2 +1,2 @@
-# Sermon-Notes-23rd
+# Sermon-Notes-16th
 Sermon Notes
